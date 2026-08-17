@@ -1,5 +1,5 @@
 # 💫 About Me:
-Eating bugs, shipping features, and turning caffeine into code since forever. If it works, don't ask me how—just know it’s a masterpiece. Living by the "it worked on my machine" creed.
+malas commit bos, mending turu 😴😴
 
 
 ## 🌐 Socials:
